@@ -1,3 +1,3 @@
 I spy NMD 
 
-cold, icy, tan, awakening. 
+ Description; cold, icy, tan, awakening. 
